@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iamskyboy24
+- 👋 Hi, I’m @anowar24
 - 👀 I’m interested in anime waifu
 - 🌱 I’m currently learning to survive
 - 💞️ I’m looking to collaborate on anything at all
