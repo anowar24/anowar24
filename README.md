@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anowar24
-- 👀 I’m interested in anime waifu
+- 👀 I’m interested in anime
 - 🌱 I’m currently learning to survive
 - 💞️ I’m looking to collaborate on anything at all
 - 📫 How to reach me : pigeon or owl only
